@@ -1,3 +1,0 @@
-# Cel
-SEA OCEAN-
-/3c6386ae22b9d5392dc1b8d757d6cb09.jpg
